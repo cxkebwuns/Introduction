@@ -6,8 +6,10 @@
 
 ![Daisuke hehe](https://github.com/user-attachments/assets/453b999f-a461-47ff-a5e4-ff1e9538715b)
 
-**Here's my strawpage!** ![Strawpage](https://jadeoaks.straw.page_https://github.com/user-attachments/assets/453b999f-a461-47ff-a5e4-ff1e9538715b)
+**Here's my strawpage!**
+![](https://jadeoaks.straw.page)
 
+![](https://github.com/user-attachments/assets/453b999f-a461-47ff-a5e4-ff1e9538715b)
 
 ![SLYLOVESEVE4VR BIG](https://github.com/user-attachments/assets/4f11808f-0d1e-417c-bd6e-d654cc3bee4d)
 
