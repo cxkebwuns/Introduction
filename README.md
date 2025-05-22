@@ -1,10 +1,10 @@
-<p align="center">![Curlya](https://github.com/user-attachments/assets/bffe9bff-5275-4579-aa00-abd44028d6c8)
+![Curlya](https://github.com/user-attachments/assets/bffe9bff-5275-4579-aa00-abd44028d6c8)
 
-<p align="center"># ****Welcome!****
+# <p align="center"> ****Welcome!****</p>
 
-<p align="center">![stygianuserbox](https://github.com/user-attachments/assets/fc6d7c9f-c2f7-425d-afbe-947636f1d1eb)
+# <p align="center"> ![stygianuserbox](https://github.com/user-attachments/assets/fc6d7c9f-c2f7-425d-afbe-947636f1d1eb)</p>
 
-<p align="center"># ****Before you interact / Info****
+# <p align="center"> ****Before you interact / Info****</p>
 
 - **I love interacting with people! But sometimes I will be non-verbal due to not being in the mood to socialize, I'll interact through actions though!**
 - **Yumeshipper but is willing to share!**
@@ -12,9 +12,9 @@
 - **I'm okay with talking about any type of topic in general.**
 - **I'm a very chill guy, and very motherly, as said by most people I've met. But don't be fooled, I can be hella freaky if I want to, unless you're uncomfortable with that, then please do inform me!**
 
-<p align="center"># ****INTERESTS****
+# <p align="center"> ****INTERESTS****</p>
 
-<p align="center"># ****ANIMES****
+# <p align="center"> ****ANIMES****</p>
 
 - **One Piece**
 - **Skip And Loafer**
@@ -32,7 +32,7 @@
 - **Blue Lock**
 - **Corpse Party**
 
-<p align="center"># ****VIDEO GAMES****
+# <p align="center"> ****VIDEO GAMES****</p>
 
 - **Mouthwasing**
 - **FNAF**
@@ -64,9 +64,9 @@
 - **Among Us**
 - **Will add more later!**
 
-<p align="center"># ****Goodbye!****
+# <p align="center"> ****Goodbye!****</p>
 
-<p align="center">![mouthwashing-daisuke-dance](https://github.com/user-attachments/assets/17b500e3-fecd-45e0-9965-4ece20feffe7)
+# <p align="center"> ![mouthwashing-daisuke-dance](https://github.com/user-attachments/assets/17b500e3-fecd-45e0-9965-4ece20feffe7)</p>
 
-<p align="center"># ...
+# <p align="center"> ****...****</p>
 [Hehe](https://www.youtube.com/watch?v=xIOg_K6Z1fg&ab_channel=JAKO)
