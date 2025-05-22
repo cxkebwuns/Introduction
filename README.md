@@ -12,8 +12,6 @@
 - **I'm okay with talking about any type of topic in general.**
 - **I'm a very chill guy, and very motherly, as said by most people I've met. But don't be fooled, I can be hella freaky if I want to, unless you're uncomfortable with that, then please do inform me!**
 
-![FLIMFLAMBIGf](https://github.com/user-attachments/assets/fa4962b5-0b3c-4bd1-ad0d-a3e2f6f918f2)\
-
 # ****INTERESTS****
 
 # ****ANIMES****
@@ -66,7 +64,7 @@
 - **Among Us**
 - **Will add more later!**
 
-![mouthwashing-daisuke](https://github.com/user-attachments/assets/cc09619f-fc2e-4190-be2f-b8b916a030d4)
+![mouthwashing-daisuke-dance](https://github.com/user-attachments/assets/17b500e3-fecd-45e0-9965-4ece20feffe7)
 
 # ****Goodbye!****
 ![](https://github.com/user-attachments/assets/453b999f-a461-47ff-a5e4-ff1e9538715b)
