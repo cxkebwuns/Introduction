@@ -1,6 +1,6 @@
 
 
-![stygianuserbox](Daisuke wave.png)
+![stygianuserbox](https://github.com/user-attachments/assets/fc6d7c9f-c2f7-425d-afbe-947636f1d1eb)
 
 # **Welcome!**
 
