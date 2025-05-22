@@ -66,31 +66,10 @@
 - **Among Us**
 - **Will add more later!**
 
-![RATCEST BIG](https://github.com/user-attachments/assets/5fe2aa45-645c-4dd6-89eb-aa392fb0e8bc)
+![mouthwashing-daisuke](https://github.com/user-attachments/assets/cc09619f-fc2e-4190-be2f-b8b916a030d4)
 
-# ***MUSIC I LIEK :o3c*** (most significant interests in bold)
-- ***Harley Poe <3*** (I love Harley Poe!!!!!! But never talk to me about it I will die. Harley Poe fans DNI)
-- ***4lung*** (Other 4lung fans please interact!!!)
-- ***The Paper Chase***
-- ***John Congleton and the Nighty Nite***
-- Creature Feature
-- Operation Sodasteal
-- Rufus Rex
-- Pent Up Pup
-- Ramshackle Glory
-- Qbomb
-- Bear Ghost
-- Stomach Book
-
+# ****Goodbye!****
 ![](https://github.com/user-attachments/assets/453b999f-a461-47ff-a5e4-ff1e9538715b)
-  
-![MAGGOT GROOVE](https://github.com/user-attachments/assets/4c18ea2f-c801-495e-88e3-51b1f3f1c12d)
 
-# **Goodbye :o3**
-
-![colts will be bugs](https://github.com/user-attachments/assets/670aa4ac-8fd7-45a2-a440-3bbfb66387b2)
-![kevinuserbox](https://github.com/user-attachments/assets/9b2c5d02-4601-42dd-b1d1-840848b4c902)
-![chuckyuserbox](https://github.com/user-attachments/assets/f011533e-7bee-4c64-98ef-6e58a142766d)
-![mellowuserbox3](https://github.com/user-attachments/assets/9062b5f8-8a3b-4827-a5ac-51ce1b2fc21c)
-## ....
-[honk](https://www.youtube.com/watch?v=boAxkYmO30c)
+# ...
+[Hehe](https://www.youtube.com/watch?v=xIOg_K6Z1fg&ab_channel=JAKO)
