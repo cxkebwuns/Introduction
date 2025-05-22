@@ -7,15 +7,15 @@
 ![Daisuke hehe](https://github.com/user-attachments/assets/453b999f-a461-47ff-a5e4-ff1e9538715b)
 
 **Here's my strawpage!**
-![](https://jadeoaks.straw.page)
-
-![](https://github.com/user-attachments/assets/453b999f-a461-47ff-a5e4-ff1e9538715b)
+![Mmm...](https://jadeoaks.straw.page)
 
 ![SLYLOVESEVE4VR BIG](https://github.com/user-attachments/assets/4f11808f-0d1e-417c-bd6e-d654cc3bee4d)
 
 
 
 # ***Before you interact / Info***
+
+![](https://github.com/user-attachments/assets/453b999f-a461-47ff-a5e4-ff1e9538715b)
 
 ## ***[LINK TO F/O LIST !!!](https://docs.google.com/document/d/1z87dd5EAqhLX5DDW1LxPfYMSmuht_S1sNXZHvsuu6Oc/edit?usp=sharing)***
 -  ***❗❗❗Very unlikely to actually respond. I have VERY bad (social) anxiety. Talking to people is often impossible for me. Please don't take it personally.❗❗❗***
