@@ -6,12 +6,11 @@
 
 ![Curlya](https://github.com/user-attachments/assets/bffe9bff-5275-4579-aa00-abd44028d6c8)
 
-# ***Before you interact / Info***
+# **Before you interact / Info**
 
 ![](https://github.com/user-attachments/assets/453b999f-a461-47ff-a5e4-ff1e9538715b)
 
-## ***[LINK TO F/O LIST !!!](https://docs.google.com/document/d/1z87dd5EAqhLX5DDW1LxPfYMSmuht_S1sNXZHvsuu6Oc/edit?usp=sharing)***
--  ***❗❗❗Very unlikely to actually respond. I have VERY bad (social) anxiety. Talking to people is often impossible for me. Please don't take it personally.❗❗❗***
+-❗❗❗Very unlikely to actually respond. I have VERY bad (social) anxiety. Talking to people is often impossible for me. Please don't take it personally.❗❗❗
 - **Non-Sharing Selfshipper**.
 -  ***Pro-Para***. ***Anti-contact for paras that would cause harm if acted upon / paras that involve anyone who can not or does not consent***. I see you "gross" and "harmful" paras, and I love you <3
 -  Do not try to involve me in any discourse, I'm just here to chill. Trying to argue with or harass me is a waste of your time because I'm just going to hide you <3
