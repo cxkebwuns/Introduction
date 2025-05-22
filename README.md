@@ -1,6 +1,6 @@
 
 
-![stygianuserbox]()
+![stygianuserbox](Daisuke wave.png)
 
 # **Welcome!**
 
