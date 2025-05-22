@@ -1,24 +1,25 @@
 
 
-# **Welcome!**
+# ****Welcome!****
 
 ![stygianuserbox](https://github.com/user-attachments/assets/fc6d7c9f-c2f7-425d-afbe-947636f1d1eb)
 
 ![Curlya](https://github.com/user-attachments/assets/bffe9bff-5275-4579-aa00-abd44028d6c8)
 
-# **Before you interact / Info**
+# ****Before you interact / Info****
 
-![](https://github.com/user-attachments/assets/453b999f-a461-47ff-a5e4-ff1e9538715b)
-
--❗❗❗Very unlikely to actually respond. I have VERY bad (social) anxiety. Talking to people is often impossible for me. Please don't take it personally.❗❗❗
-- **Non-Sharing Selfshipper**.
--  ***Pro-Para***. ***Anti-contact for paras that would cause harm if acted upon / paras that involve anyone who can not or does not consent***. I see you "gross" and "harmful" paras, and I love you <3
--  Do not try to involve me in any discourse, I'm just here to chill. Trying to argue with or harass me is a waste of your time because I'm just going to hide you <3
-- ***P.L.U.R***, and I fucking mean it. ***Be nice to people.***
+- **I love interacting with people! But sometimes I will be non-verbal due to not being in the mood to socialize, I'll interact through actions though!**
+- **Yumeshipper but is willing to share!**
+- **I will not hesitate to hide or block you if it comes to it.**
+- **I'm okay with talking about any type of topic in general.**
+- **I'm a very chill guy, and very motherly, as said by most people I've met. But don't be fooled, I can be hella freaky if I want to, unless you're uncomfortable with that, then please do inform me!**
 
 ## ***[LINK TO SHIP LIST !!! ](https://docs.google.com/document/d/1X8n6leZPZJDl_YBldso4F8hDwOe1K7fx7RgFcWydwVs/edit?usp=sharing)***
 
-![FLIMFLAMBIGf](https://github.com/user-attachments/assets/fa4962b5-0b3c-4bd1-ad0d-a3e2f6f918f2)
+![FLIMFLAMBIGf](https://github.com/user-attachments/assets/fa4962b5-0b3c-4bd1-ad0d-a3e2f6f918f2)\
+
+![](https://github.com/user-attachments/assets/453b999f-a461-47ff-a5e4-ff1e9538715b)
+
 
 
 
