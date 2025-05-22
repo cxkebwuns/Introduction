@@ -1,8 +1,8 @@
 
 
-![stygianuserbox](https://github.com/user-attachments/assets/fc6d7c9f-c2f7-425d-afbe-947636f1d1eb)
-
 # **Welcome!**
+
+![stygianuserbox](https://github.com/user-attachments/assets/fc6d7c9f-c2f7-425d-afbe-947636f1d1eb)
 
 ![im not an animating yippeee](https://github.com/user-attachments/assets/234f50d8-d5ca-404a-9d89-ae3f9a051e26)
 
