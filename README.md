@@ -6,7 +6,7 @@
 
 ![im not an animating yippeee](https://github.com/user-attachments/assets/234f50d8-d5ca-404a-9d89-ae3f9a051e26)
 
-![strawpage](https://jadeoaks.straw.page)
+**Here's my strawpage!** ![strawpage](https://jadeoaks.straw.page)
 
 
 ![SLYLOVESEVE4VR BIG](https://github.com/user-attachments/assets/4f11808f-0d1e-417c-bd6e-d654cc3bee4d)
