@@ -4,11 +4,6 @@
 
 ![stygianuserbox](https://github.com/user-attachments/assets/fc6d7c9f-c2f7-425d-afbe-947636f1d1eb)
 
-![Daisuke hehe](https://github.com/user-attachments/assets/453b999f-a461-47ff-a5e4-ff1e9538715b)
-
-**Here's my strawpage!**
-![Mmm...](https://jadeoaks.straw.page)
-
 ![SLYLOVESEVE4VR BIG](https://github.com/user-attachments/assets/4f11808f-0d1e-417c-bd6e-d654cc3bee4d)
 
 
