@@ -4,9 +4,7 @@
 
 ![stygianuserbox](https://github.com/user-attachments/assets/fc6d7c9f-c2f7-425d-afbe-947636f1d1eb)
 
-![SLYLOVESEVE4VR BIG](https://github.com/user-attachments/assets/4f11808f-0d1e-417c-bd6e-d654cc3bee4d)
-
-
+![Curlya](https://github.com/user-attachments/assets/bffe9bff-5275-4579-aa00-abd44028d6c8)
 
 # ***Before you interact / Info***
 
