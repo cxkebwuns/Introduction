@@ -14,8 +14,6 @@
 
 ![FLIMFLAMBIGf](https://github.com/user-attachments/assets/fa4962b5-0b3c-4bd1-ad0d-a3e2f6f918f2)\
 
-![](https://github.com/user-attachments/assets/453b999f-a461-47ff-a5e4-ff1e9538715b)
-
 # ****INTERESTS****
 
 # ****ANIMES****
@@ -29,7 +27,12 @@
 - **Kimetsu No Yaiba / Demon Slayer**
 - **Toilet Bound Hanako Kun**
 - **Spy X Family**
-- **The Promise Neverland /(Season two sucks)/**
+- **The Promise Neverland (Season two sucks)**
+- **Anohana**
+- **Boku No Hero Academia**
+- **Your Lie In April**
+- **Blue Lock**
+- **Corpse Party**
 
 # ****VIDEO GAMES****
 
@@ -42,9 +45,11 @@
 - **Honkai: Star Rail**
 - **Wuthering Waves**
 - **IB**
+- **Repo**
+- **Lethal Company**
 - **Franbow**
 - **Little Misfortune**
-- **Saly Face**
+- **Sally Face**
 - **Cuphead**
 - **Bendy And The Ink Machine**
 - **Roblox**
@@ -57,6 +62,9 @@
 - **The Last Of Us**
 - **Baldi's Basic**
 - **FNF**
+- **Hello Neightbor**
+- **Among Us**
+- **Will add more later!**
 
 ![RATCEST BIG](https://github.com/user-attachments/assets/5fe2aa45-645c-4dd6-89eb-aa392fb0e8bc)
 
@@ -73,6 +81,8 @@
 - Qbomb
 - Bear Ghost
 - Stomach Book
+
+![](https://github.com/user-attachments/assets/453b999f-a461-47ff-a5e4-ff1e9538715b)
   
 ![MAGGOT GROOVE](https://github.com/user-attachments/assets/4c18ea2f-c801-495e-88e3-51b1f3f1c12d)
 
