@@ -69,7 +69,7 @@
 - **Among Us**
 - **Will add more later!**
 
-# <p alighn="center"> ****SOME ARTISTS I LIKE****</p>
+# <p align="center"> ****SOME ARTISTS I LIKE****</p>
 
 - **Cavetown**
 - **Alec Benjamin**
