@@ -11,8 +11,8 @@
 - **I love interacting with people! But sometimes I will be non-verbal due to not being in the mood to socialize, I'll interact through actions though!**
 - **Yumeshipper but is willing to share!**
 - **I will not hesitate to hide or block you if it comes to it.**
-- **I'm okay with talking about any type of topic in general.**
-- **I'm a very chill guy, and very motherly, as said by most people I've met. But don't be fooled, I can be hella freaky if I want to, unless you're uncomfortable with that, then please do inform me!**
+- **I'm okay with discussing any topic in general.**
+- **I'm a very chill guy and very motherly, as most people I've met said. But don't be fooled, I can be hella freaky if I want to, unless you're uncomfortable with that, then please do inform me!**
 
 
 # <p align="center"> ****💊 INTERESTS 💊****</p>
@@ -68,6 +68,45 @@
 - **Hello Neightbor**
 - **Among Us**
 - **Will add more later!**
+
+# <p alighn="center"> ****SOME ARTISTS I LIKE****</p>
+
+- **Cavetown**
+- **Alec Benjamin**
+- **Billie Eilish**
+- **Ayesha Erotica**
+- **Marina And The Diamonds**
+- **Noah Floersch**
+- **Em Beihold**
+- **Conan Gray**
+- **Bo Burnham**
+- **Jack Stauber**
+- **Aurora**
+- **Linkin Park**
+- **Ke$ha**
+- **Lady Gaga**
+- **Shawn Mendes**
+- **One Direction**
+- **TV Girl**
+- **Chloe Ament**
+- **TryHardNinja**
+- **TheLivingTombstone**
+- **Lana Del Ray**
+- **Rihanana**
+- **P!nk**
+- **Chappell Roan**
+- **XXXTentacion**
+- **Dua Lipa**
+- **Miley Cyrus**
+- **Noah Cyrus**
+- **Charlie Puth**
+- **Ed Sheeran**
+- **Yaelokre**
+- **Neoni**
+- **Marshmallow**
+- **Alan Walker**
+- **And so much more!!!**
+
 
 
 # <p align="center"> ****LOVE CURLYA! <3****</p>
